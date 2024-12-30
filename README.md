@@ -1,4 +1,6 @@
-## Hi there 👋
+## 啊灬啊灬啊灬快灬深学长慢男男 👋
+
+博客：<https://shenmanaa.github.io>
 
 <!--
 **shenmanaa/shenmanaa** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
